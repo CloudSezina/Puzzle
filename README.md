@@ -59,5 +59,3 @@ The information and data collected about you by the Application will be stored o
 (b) We reserve the right to modify this Policy at any time, so please check back often. If there is a material change to this policy, we will inform you by means of a notice on our website.
 
 Please protect your personal information properly and provide it to others only when necessary. If you find that your personal information has been compromised, especially the user name and password of the application, please contact the customer service of the application immediately so that the application can take appropriate measures.
-
-Translated with www.DeepL.com/Translator (free version)
